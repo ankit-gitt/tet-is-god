@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tet-is-god
+- 👋 Hi, I’m Ankit/ @tet-is-god
 - 📫 How to reach me ... www.telegram.me/tet_is_god
 
 <!---
